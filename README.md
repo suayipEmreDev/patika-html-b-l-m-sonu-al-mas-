@@ -1,2 +1,2 @@
-# patika-html-b-l-m-sonu-al-mas-
+# patika-html-bolum-sonu-calismasi
 Index sayfasın'da değişiklikler yapılmştır. 
